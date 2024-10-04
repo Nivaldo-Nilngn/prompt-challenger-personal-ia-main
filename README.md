@@ -1,1 +1,0 @@
-# prompt-challenger-personal-ia-main
